@@ -1,12 +1,12 @@
 <div align="center">
 
-<img width="1000" alt="Untitled74_20260706154450" src="https://github.com/user-attachments/assets/d8e1a94a-a2ef-4ca6-96a9-174f23523449" />
+<img width="800" alt="Untitled74_20260706154450" src="https://github.com/user-attachments/assets/d8e1a94a-a2ef-4ca6-96a9-174f23523449" />
 
 $\text{\color{#937a8e}  𓆩ꨄ︎𓆪 ﹒I won't forget how .◜　you looked at me then!
   }$ 
 
 <div align="center">
-<img width="700" alt="Untitled72_20260706145444" src="https://github.com/user-attachments/assets/fb30d478-d58a-46a6-8c71-236d95bb1954" />
+<img width="500" alt="Untitled72_20260706145444" src="https://github.com/user-attachments/assets/fb30d478-d58a-46a6-8c71-236d95bb1954" />
 
 
 <div align="center">
