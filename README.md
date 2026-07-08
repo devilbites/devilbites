@@ -14,7 +14,7 @@ $\text{\color{#937a8e}  I won't forget how u　𓆩ꨄ︎𓆪　looked at me the
 $\text{\color{#937a8e}   𓏼⠀⠀ i block freely!⠀　𓏴𓏴
   }$ 
   
-$\text{\color{#937a8e}  𑣲 ⠀⠀ c+h heavily enc ﹐ dnc or inspo ﹒ ♰
+$\text{\color{#937a8e}  𑣲 ⠀⠀ c+h heavily enc ﹐ dnc, light inspo is ok! ﹒ ♰
   }$ 
 
 
